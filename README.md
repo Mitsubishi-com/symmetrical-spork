@@ -1,2 +1,2 @@
 # symmetrical-spork
-https:/yfarulit
+https://yapx.ru/album/YXqq1
